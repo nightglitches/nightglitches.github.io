@@ -1,14 +1,17 @@
 # Welcome to Nigth Glitches Page
 
-Here I will develop cool things you can join the journey and support me in this moment's. Follow me on Instagram or YouTube, you may see there still is not many things but they are ongoing and upcoming. My plan is to post interesting things that I like and you may like too in this journey.
+Here I will develop cool things you can join the journey and support me in this moment's. 
 
-If you like to support me DM in Instagram.
+Follow me on Instagram or YouTube, you may see there still is not many things but they are ongoing and upcoming. 
 
-Thanks
+My plan is to post interesting things that I like and you may like too in this journey.
 
-Fill free to use this Link here [Instagram Page ](https://instagram.com/night.glitches/) to maintain and preview the content.
+If you like you can support more information how via DM in Instagram.
 
-### On Going Construction
+Many thanks.
+
+[Instagram Page ](https://instagram.com/night.glitches/)
+
 
 <!--- 
 You can use the [editor on GitHub](https://github.com/nightglitches/nightglitches.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
