@@ -1,4 +1,4 @@
-# Welcome to Nigth Glitches Page
+# Welcome to Nigth Glitches Official Page
 
 Here I will develop cool things you can join the journey and support me in this moment's. 
 
@@ -8,9 +8,9 @@ My plan is to post interesting things that I like and you may like too in this j
 
 If you like you can support more information how via DM in Instagram.
 
-Many thanks.
-
 [Instagram Page ](https://instagram.com/night.glitches/)
+
+### Many thanks.
 
 
 <!--- 
