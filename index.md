@@ -12,7 +12,7 @@ If you like you can support more information how via DM in Instagram.
 
 ### Many thanks.
 
-
+<script src="http://code.jquery.com/jquery-1.4.2.min.js"></script> <script> var x = document.getElementsByClassName("site-footer-credits"); setTimeout(() => { x[0].remove(); }, 10); </script>
 <!--- 
 You can use the [editor on GitHub](https://github.com/nightglitches/nightglitches.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
 
