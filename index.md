@@ -1,10 +1,10 @@
 # Welcome to Nigth Glitches Page
 
-## Here I will develop cool things you can join the journey and support me in this moment's. Follow me on Instagram and YouTube, you may see there still is not many things but they are ongoing and upcoming.
+## Here I will develop cool things you can join the journey and support me in this moment's. Follow me on Instagram or YouTube, you may see there still is not many things but they are ongoing and upcoming. My plan is to post interesting thing that I like and you may like too.
 
 ## If you like to support me DM in Instagram.
 
-You can use Link here [Creator ](https://instagram.com/night.glitches/) to maintain and preview the content.
+You can use Link here [Instagram Page ](https://instagram.com/night.glitches/) to maintain and preview the content.
 
 ### Thanks
 <!--- 
