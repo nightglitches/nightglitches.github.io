@@ -4,7 +4,7 @@ Here I will develop cool things you can join the journey and support me in this 
 
 Follow me on Instagram or YouTube, you may see there still is not many things but they are ongoing and upcoming. 
 
-My plan is to post interesting things that I like and you may like too in this journey.
+My plan is while developing to post interesting things that I like and you may like too in this journey.
 
 If you like you can support more information how via DM in Instagram.
 
