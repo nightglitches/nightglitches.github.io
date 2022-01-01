@@ -1,8 +1,6 @@
 # Welcome to Nigth Glitches Page
 
-## Here I will develop cool things you can jonn the journey and support me in this moment's.
-
-# Follow me on Instagram and YouTube, you may see there still is not many things but they are ongoing and upcoming.
+## Here I will develop cool things you can jonn the journey and support me in this moment's. \ Follow me on Instagram and YouTube, you may see there still is not many things but they are ongoing and upcoming.
 
 ## If you like to support me DM in Instagram.
 
