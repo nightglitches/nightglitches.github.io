@@ -9,8 +9,12 @@ My plan is while developing to post interesting things that I like and you may l
 If you like you can support more information how via DM in Instagram.
 
 [YouTube Page ](https://www.youtube.com/channel/UC-GMw1NbRkBD1vGstPuSHrA)
+
 [Instagram Page ](https://instagram.com/night.glitches/)
+
 [TikTok Page ](https://www.tiktok.com/@night.glitches/)
+
+[Donate To NightGlitchesCauses](https://www.youtube.com/redirect?event=channel_description&redir_token=QUFFLUhqbmxRcTQtamZKelJfWkswcVJjRENTaFpfUU1PUXxBQ3Jtc0ttN1g2MzNuMkJEQURKclNsMzg5dnlKOHBBMDVuVXJnRUNYdHg0OTA0NXdjeVJjQWwwNm5VWXRVUEtaV3dGU210UG9Dcm8tMkpTSUF6cjR2S3hhaVBGb2xfSWh5b2tld2V3SElZc2ZBVnZIdEZhNURtUQ&q=https%3A%2F%2Fwww.paypal.com%2Fdonate%2F%3Fhosted_button_id%3DZE2GJCT8BVC9Q)
 
 ### Many thanks.
 
