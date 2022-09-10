@@ -8,7 +8,9 @@ My plan is while developing to post interesting things that I like and you may l
 
 If you like you can support more information how via DM in Instagram.
 
+[YouTube Page ](https://www.youtube.com/channel/UC-GMw1NbRkBD1vGstPuSHrA)
 [Instagram Page ](https://instagram.com/night.glitches/)
+[TikTok Page ](https://www.tiktok.com/@night.glitches/)
 
 ### Many thanks.
 
