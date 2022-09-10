@@ -1,18 +1,18 @@
-# Welcome to Nigth Glitches Official Page
+# Welcome to Night Glitches Official Page
 
 Here I will develop cool things you can join the journey and support me in this moment's. 
 
-Follow me on Instagram or YouTube, you may see there still is not many things but they are ongoing and upcoming. 
+Follow me on Instagram, YouTube or TikTok, you may see there still is not many things but they are ongoing and upcoming. 
 
 My plan is while developing to post interesting things that I like and you may like too in this journey.
 
-If you like you can support more information how via DM in Instagram.
+If you like you can support by Donation button "💵 Donate To NightGlitchesCauses" below.
 
-[🎞 Subscribe to YouTube Nigth Glitches Page](https://www.youtube.com/channel/UC-GMw1NbRkBD1vGstPuSHrA)
+[🎞 Subscribe to YouTube Night Glitches Page](https://www.youtube.com/channel/UC-GMw1NbRkBD1vGstPuSHrA)
 
-[🖼 Follow Instagram Nigth Glitches Page ](https://instagram.com/night.glitches/)
+[🖼 Follow Instagram Night Glitches Page ](https://instagram.com/night.glitches/)
 
-[🎆 Follow TikTok Nigth Glitches Page ](https://www.tiktok.com/@night.glitches/)
+[🎆 Follow TikTok Night Glitches Page ](https://www.tiktok.com/@night.glitches/)
 
 [💵 Donate To NightGlitchesCauses](https://www.paypal.com/donate/?hosted_button_id=ZE2GJCT8BVC9Q)
 
